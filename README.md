@@ -1,8 +1,5 @@
 # rennsyu
 aaaaaa
-aaaaaa
-aaaaaa
-
-DDDDDDDDDDD
+れんしゅちゅう
 
 bbbbbb
